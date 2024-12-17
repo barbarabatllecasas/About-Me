@@ -25,7 +25,9 @@ realizar proyectos de edificios judiciales desde cero (idea + planimetría compl
 Tareas: proyectar y conducir obras de arquitectura para particulares, realizar reformas edilicias en viviendas particulares y locales comerciales, diseñar interiores completos (mobiliario, equipamiento, instalaciones, etc).
 
 
-⚡️ ¡Estoy lista para el próximo desafío! Contactame :)
+⚡️ ¡Estoy lista para el próximo desafío! Contactame :) 
+
+barbarabatllecasas@gmail.com - +5493425157400
 
 
 ## 🔗 Links
